@@ -40,7 +40,7 @@ I'm constantly exploring new technologies and methodologies. Currently, I'm divi
 I'm always open to collaboration and networking! Feel free to reach out to me on:
 
 - [LinkedIn](https://www.linkedin.com/in/mehmet-akif-kurt-35bb0a291/)
-- [Email]: mehkurt25@gmail.com
+-  mehkurt25@gmail.com
 
 ---
 
